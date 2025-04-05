@@ -1,4 +1,4 @@
-# Tele2 Meetup 2024
+# Kolesa Group Hackathon 2025
 
 ## Links
 
